@@ -6,7 +6,11 @@
 # 5. Thalavan 2024 Hindi | Biju Menon, Asif Ali  [Click here to Watch](https://www.bitchute.com/video/ybtY4MjcdNde)
 
 # 6. Amaran 2024 Hindi |Sivakarthikeyan, Sai Pallavi | Rajkumar | GV Prakash | Kamal Haasan [Click here to Watch](https://www.bitchute.com/video/GlCY6CvqFfDm)
-# 7. [Click here to Watch]()
+
+
+# 7. Lust Stories [Lust Stories](https://www.bitchute.com/video/G6skerjhLAR7)
+# Lust Stories 2  [Click here to Watch](https://www.bitchute.com/video/u6Tzoyd7i2dU)
+ 
 # 8. [Click here to Watch]()
 # 9. [Click here to Watch]()
 # 10. [Click here to Watch]()
@@ -20,3 +24,6 @@
 # 18. [Click here to Watch]()
 # 19. [Click here to Watch]()
 # 20. [Click here to Watch]()
+
+
+<!-- # 30. [Click here to Watch]() -->
