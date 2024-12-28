@@ -4,7 +4,8 @@
 # 3. Bagheera 2024 Hindi [Click here to Watch](https://www.bitchute.com/video/QMXyAzuDh9PG)
 # 4. Along With the Gods The Last 49 Days Hindi [Click here to Watch](https://www.bitchute.com/video/8DwtJ2WqHFS8)
 # 5. Thalavan 2024 Hindi | Biju Menon, Asif Ali  [Click here to Watch](https://www.bitchute.com/video/ybtY4MjcdNde)
-# 6. [Click here to Watch]()
+
+# 6. Amaran 2024 Hindi |Sivakarthikeyan, Sai Pallavi | Rajkumar | GV Prakash | Kamal Haasan [Click here to Watch](https://www.bitchute.com/video/GlCY6CvqFfDm)
 # 7. [Click here to Watch]()
 # 8. [Click here to Watch]()
 # 9. [Click here to Watch]()
