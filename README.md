@@ -1,9 +1,9 @@
 # 2024 New-Hindi-Movies
 # 1. Max - 2024 | Hindi | Kichcha Sudeep | B Ajaneesh Loknath | Vijay Kartikeyaa [Click here to Watch](https://www.bitchute.com/video/fTrdfy5XhNa3/)
-# 2. Pushpa The Rule - Part 2 2024 Hindi [Click here to Watch](https://www.bitchute.com/video/sRvtSSz5g4dC)
+# 2. Pushpa 2 - The Rule (Hindi) | Allu Arjun | Sukumar | Rashmika Mandanna | Fahadh Faasil | DSP [Click here to Watch](https://www.bitchute.com/video/sRvtSSz5g4dC)
 # 3. Bagheera 2024 Hindi [Click here to Watch](https://www.bitchute.com/video/QMXyAzuDh9PG)
 # 4. Along With the Gods The Last 49 Days Hindi [Click here to Watch](https://www.bitchute.com/video/8DwtJ2WqHFS8)
-# 5. [Click here to Watch]()
+# 5. Thalavan 2024 Hindi | Biju Menon, Asif Ali  [Click here to Watch](https://www.bitchute.com/video/ybtY4MjcdNde)
 # 6. [Click here to Watch]()
 # 7. [Click here to Watch]()
 # 8. [Click here to Watch]()
