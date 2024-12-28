@@ -1,6 +1,6 @@
 # New-Movies
 # 1. Max 2024 ORG Hindi Dubbed [Click here to Watch]()
-# 2. [Click here to Watch]()
+# 2. Pushpa The Rule - Part 2 2024 Hindi [Click here to Watch](https://www.bitchute.com/video/sRvtSSz5g4dC)
 # 3. [Click here to Watch]()
 # 4. [Click here to Watch]()
 # 5. [Click here to Watch]()
