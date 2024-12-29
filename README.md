@@ -2,8 +2,9 @@
 
 ### 1. [2025 New-Hindi-Movies](#2025-new-hindi-movies)
 ### 2. [2024 New-Hindi-Movies](#2024-new-hindi-movies)
-### 3. [2023 New-Hindi-Movies](#2023-new-hindi-movies)
-### 4. [2022 New-Hindi-Movies](#2022-new-hindi-movies)
+
+### 3. [Web Series](#web-Series)
+ 
   
 
 ---
@@ -38,35 +39,75 @@
 
 ---
 
-# 2023 New-Hindi-Movies
+# Web-Series
+### 1. [Brand New Cherry Flavor Season 1](#brand-new-cherry-flavor-season-1)
 
+
+
+
+
+# Brand New Cherry Flavor Season 1
 <details>
-  <summary>Click to view the list of movies</summary>
+  <summary>Click to view the Brand New Cherry Flavor Season 1</summary>
  
-  ###  1. Fear the Night 2023 | Action | Adventure | Thriller [Click here to Watch]()
-  ###  2. [Click here to Watch]()
-  ###  3. [Click here to Watch]()
-  ###  4. [Click here to Watch]()
-  ###  5. [Click here to Watch]()
-  ###  6. [Click here to Watch]()
-  ###  7. [Click here to Watch]()
-  ###  8. [Click here to Watch]()
-  ###  9. [Click here to Watch]()
-  ###  10. [Click here to Watch]()
-  ###  11. [Click here to Watch]()
-  ###  12. [Click here to Watch]()
-  ###  13. [Click here to Watch]()
-  ###  14. [Click here to Watch]()
-  ###  15. [Click here to Watch]()
-  ###  16. [Click here to Watch]()
-  ###  17. [Click here to Watch]()
-  ###  18. [Click here to Watch]()
-  ###  19. [Click here to Watch]()
-  ###  20. [Click here to Watch]()
+  
+
+### **Brand New Cherry Flavor Season 1 Episode 1 Hindi**  
+[Watch here](https://www.bitchute.com/video/5YYq85K2PYQE/)  
+
+### **Brand New Cherry Flavor Season 1 Episode 2 Hindi**  
+[Watch here](https://www.bitchute.com/video/LR3DNxLP5j0A/)  
+
+### **Brand New Cherry Flavor Season 1 Episode 3 Hindi**  
+[Watch here](https://www.bitchute.com/video/WiMp4thsGtLQ/)  
+
+### **Brand New Cherry Flavor Season 1 Episode 4 Hindi**  
+[Watch here](https://www.bitchute.com/video/r50mhAYVFlZR/)  
+
+### **Brand New Cherry Flavor Season 1 Episode 5 Hindi**  
+[Watch here](https://www.bitchute.com/video/xigYqx0cx2vD/)  
+
+### **Brand New Cherry Flavor Season 1 Episode 6 Hindi**  
+[Watch here](https://www.bitchute.com/video/T7RTX0FMJ4vu/)  
+
+### **Brand New Cherry Flavor Season 1 Episode 7 Hindi**  
+[Watch here](https://www.bitchute.com/video/UKb3pCqfhA3g/)  
+
+### **Brand New Cherry Flavor Season 1 Episode 8 Hindi**  
+[Watch here](https://www.bitchute.com/video/ZXA7tvT6HmbY/)  
+
+ 
 
 </details>
 
 ---
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 # 2022 New-Hindi-Movies
 
