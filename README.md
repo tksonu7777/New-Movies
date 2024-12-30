@@ -117,7 +117,8 @@
  
   ###  3. CID Season 2  Episode 3  28th December 2024 [1. Click here to Watch](https://dai.ly/x9bhlb2)
   ###  ---------->Link 2  for CID Season 2  Episode 3 [2. Click here to Watch](https://www.bitchute.com/video/tM7cEjuJZIPp/)
-  ###  4. [Click here to Watch]()
+  ###  4. CID Season 2 Episode 4 | Chehre Par Chehra | चेहरे पर चेहरा [Click here to Watch](https://dai.ly/x9bj8u2)
+  ###  ---------->Link 2  for CID Season 2  Episode 4 [2. Click here to Watch](https://www.bitchute.com/video/td0kQ8n1q3Ff/)
   ###  5. [Click here to Watch]()
   ###  6. [Click here to Watch]()
   ###  7. [Click here to Watch]()
