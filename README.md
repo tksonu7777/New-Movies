@@ -32,10 +32,14 @@
   ###  13. The Red Ghost  | Action | Adventure | Thriller  [Click here to Watch](https://www.bitchute.com/video/usg5MdFzlZDz/)  
   ###  14. Contagion of Fear 2024 | Action | Adventure | Thriller [Click here to Watch](https://www.bitchute.com/video/tkfPaPGOR2Ux/)  
   ###  15. Fear the Night | Action | Adventure | Thriller [Click here to Watch]()  
-  ###  16. Tarot 2024 | Horror | Action | Adventure | Thriller [Click here to Watch]()  
+  ###  16. Tarot 2024 | Horror | Action | Adventure | Thriller [Click here to Watch](https://www.bitchute.com/video/9KBTDZPhROeI/)  
+  
   ###  17. [Click here to Watch]()  
+  
   ###  18. [Click here to Watch]()  
+  
   ###  19. [Click here to Watch]()  
+  
   ###  20. [Click here to Watch]()  
 
 </details>
