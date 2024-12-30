@@ -5,7 +5,7 @@
 
 ### 3. [Web Series](#web-Series)
  
-  
+### 4. [CID Season 2](#cid-seasion-2)
 
 ---
 ---
@@ -97,44 +97,16 @@
 </details>
 
 ---
-
 ---
 ---
 ---
----
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-# 2022 New-Hindi-Movies
+#  Cid Seasion 2
 
 <details>
-  <summary>Click to view the list of movies</summary>
+  <summary>Click to view CID Seasion 2 all new Episodes</summary>
  
-  ###  1. [Click here to Watch]()
+  ###  1. CID Season 2 22nd December Episode 2 [Click here to Watch](https://www.bitchute.com/video/iPqd6aB351rL/)
   ###  2. [Click here to Watch]()
   ###  3. [Click here to Watch]()
   ###  4. [Click here to Watch]()
