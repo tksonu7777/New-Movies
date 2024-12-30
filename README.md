@@ -115,7 +115,8 @@
   ###  1. [Click here to Watch]()
   ###  2. CID Season 2 22nd December Episode 2 [Click here to Watch](https://www.bitchute.com/video/iPqd6aB351rL/)
  
-  ###  3. [Click here to Watch]()
+  ###  3. CID Season 2  Episode 3  28th December 2024 [1. Click here to Watch](https://dai.ly/x9bhlb2)
+  ###  ---------->Link 2  for CID Season 2  Episode 3 [2. Click here to Watch](https://www.bitchute.com/video/tM7cEjuJZIPp/)
   ###  4. [Click here to Watch]()
   ###  5. [Click here to Watch]()
   ###  6. [Click here to Watch]()
