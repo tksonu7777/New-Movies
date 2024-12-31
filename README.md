@@ -52,8 +52,8 @@
 ---
 
 # Web Series
-### 1. [Brand New Cherry Flavor Season 1](#brand-new-cherry-flavor-season-1)
-### 2. [Dont Come Home season 1](dont-come-home-season-1)
+### 1. [Brand New Cherry Flavor Season 1](#1-brand-new-cherry-flavor-season-1)
+### 2. [Dont Come Home season 1](#2-dont-come-home-season-1)
 
 
 
@@ -62,7 +62,7 @@
 ---
 ---
 
-#   Brand New Cherry Flavor Season 1
+#  1. Brand New Cherry Flavor Season 1
 
 <details>
   <summary>Click to view the Brand New Cherry Flavor Season 1</summary>
