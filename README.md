@@ -54,7 +54,7 @@
 # Web Series
 ### 1. [Brand New Cherry Flavor Season 1](#1-brand-new-cherry-flavor-season-1)
 ### 2. [Dont Come Home season 1](#2-dont-come-home-season-1)
-### 3. [](3-)
+### 3. [Bandidos Season 1 Hindi | Adventurer | Action](3-bandidos-season-1-hindi)
 ### 4. [](4-)
 ### 5. [](5-)
 
@@ -140,10 +140,46 @@
 ---
 
 
-# 3.   
+# 3.  Bandidos Season 1 Hindi  
 
 <details>
-  <summary>Click to view the </summary>
+  <summary>Click to view the Bandidos Season 1   </summary>
+ 
+---
+---
+ 
+### Bandidos Season 1 Episode 1 Hindi
+[Watch here](https://www.bitchute.com/video/8ixitCSLxy8c/)
+
+### Bandidos Season 1 Episode 2 Hindi
+[Watch here](https://www.bitchute.com/video/gfK4TzHb8UZL/)
+
+### Bandidos Season 1 Episode 3 Hindi
+[Watch here](https://www.bitchute.com/video/kHI2DGSynjMZ/)
+
+### Bandidos Season 1 Episode 4 Hindi
+[Watch here](https://www.bitchute.com/video/kUKSJgH30S8F/)
+
+### Bandidos Season 1 Episode 5 Hindi
+[Watch here](https://www.bitchute.com/video/z160iAAWXyMc/)
+
+### Bandidos Season 1 Episode 6 Hindi
+[Watch here](https://www.bitchute.com/video/m2tFEs6KfBhk/)
+
+### Bandidos Season 1 Episode 7 Hindi
+[Watch here](https://www.bitchute.com/video/yTwywBDfA2CW/)
+
+</details>
+
+
+
+---
+---
+
+# 4.  
+
+<details>
+  <summary>Click to view the     </summary>
  
 ---
 ---
@@ -151,9 +187,25 @@
 ### 
 [Watch here]()
 
+### 
+[Watch here]()
+
+### 
+[Watch here]()
+
+### 
+[Watch here]()
+
+### 
+[Watch here]()
+
+
+
 
 </details>
 
+ 
+
 
 
 
@@ -161,10 +213,18 @@
 ---
 
 
-# 4.   
+
+
+ 
+
+
+---
+---
+
+# 5.  
 
 <details>
-  <summary>Click to view the </summary>
+  <summary>Click to view the     </summary>
  
 ---
 ---
@@ -172,10 +232,75 @@
 ### 
 [Watch here]()
 
+### 
+[Watch here]()
+
+### 
+[Watch here]()
+
+### 
+[Watch here]()
+
+### 
+[Watch here]()
+
+
+
 
 </details>
 
+ 
 
+
+
+
+---
+---
+
+
+
+
+
+
+
+---
+---
+
+# 6.  
+
+<details>
+  <summary>Click to view the     </summary>
+ 
+---
+---
+ 
+### 
+[Watch here]()
+
+### 
+[Watch here]()
+
+### 
+[Watch here]()
+
+### 
+[Watch here]()
+
+### 
+[Watch here]()
+
+
+
+
+</details>
+
+ 
+
+
+
+
+---
+---
 
 
 ---
