@@ -140,7 +140,7 @@
 ---
 
 
-# 3.  Bandidos Season 1 Hindi  
+# 3. Bandidos Season 1 Hindi  
 
 <details>
   <summary>Click to view the Bandidos Season 1   </summary>
