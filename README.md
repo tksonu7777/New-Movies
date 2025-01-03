@@ -54,7 +54,7 @@
 # Web Series
 ### 1. [Brand New Cherry Flavor Season 1](#1-brand-new-cherry-flavor-season-1)
 ### 2. [Dont Come Home season 1](#2-dont-come-home-season-1)
-### 3. [Bandidos Season 1 Hindi | Adventurer | Action](3-bandidos-season-1-hindi)
+### 3. [Bandidos Season 1 Hindi](#3-bandidos-season-1-hindi)
 ### 4. [](4-)
 ### 5. [](5-)
 
